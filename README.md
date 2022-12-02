@@ -1,5 +1,5 @@
 # Chippy.info
-The one-way stop to boundless satisfaction and unprecented happiness.
+The one-way stop to boundless satisfaction and unprecedented happiness.
 
 Change the world.
 
